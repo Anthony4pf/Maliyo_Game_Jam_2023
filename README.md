@@ -1,1 +1,1 @@
-# Maliyo_Game_Jam_2023
+# Maliyo Game Jam 2023
